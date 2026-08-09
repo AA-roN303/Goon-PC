@@ -1,0 +1,1 @@
+Hey super new to this, just looking for some help understanding how to do certain things on here. Any help with any ideas that would help with automation and or cool things to do that would help or simplify .
